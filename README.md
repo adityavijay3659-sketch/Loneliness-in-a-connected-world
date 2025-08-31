@@ -1,2 +1,17 @@
 # Loneliness-in-a-connected-world
 How people get alone depressed , having so many ways to communicate.
+Loneliness in a Connected World: Why We Feel More Isolated Than Ever
+
+Are we alone? Are we happy? Who are we? Are we human or just machines? Just stop there and think, DO we have real humans to engage in day to day activities? 
+These questions are the base of today’s world because we don’t have many people to truly converse with. Not have real friends with whom we can share our feelings, our emotions.
+Do you know When we were in developing stage of our life. we Homosapien starts to socialize themselves we need others for our growth, support and for our future generations. Most Importantly we all have emotional consciousness so that we need physical, emotional and virtual presence of others.  People can give us strength emotionally and mentally.
+
+As, we are in modern world we all have many ways to communicate to each other. “Though technology brings us closer, an invisible wall—our phones and social media—keeps us emotionally apart.” We all have many ways to communicate and many apps like INSTAGRAM, YOUTUBE, FACEBOOK, WHATSAPP, SNAPCHAT and more make us engaged most of the times. Having too much sources still makes us ALONE why? Which leads to depression anxiety stress and more.
+VIDEO CALLS, VOICE CHATS, MESSASGING, CALLS and even in gaming we have voice connections after all these stuffs Yet we are alone. Before I tell you why this is happening? take a look here;  Here’s an illustrative graph showing how user stress and depression have risen after the beginning of the internet era (around the mid-1990s).
+
+SEE the graph above it is clear that, As more we have virtual interactions we are going in depressed state of mind from 1990 to 2025 there is fluent and clean increasing slope. But why? The short answer is Lack of emotional connections because we have lack of depth of emotions while using phones and social media apps. They provide many ways to express feelings but are we able to express it efficiently? we use emojis, hearts, GIF’s etc. but still there is lack of emotional touch. While chatting only and only social media interactions can feel heavy after time and it will kill the excitement and then you will feel like no one is here to understand and then you feel Alone and Loneliness around you. Loneliness can make you a Self doubted person who can’t interact people effectively. But we are not alone we just need to open our eyes and move outside the room of so called ‘loneliness’.
+What should a person do now? Short and sweet answer is start engaging with REAL PEOPLE NOT REEL PEOPLE, making friends, talking to loved ones make you feel better. Make friends, girlfriend or just talk to a girl will make you feel so confident.
+For Example: Making a partner (who can be anyone whom you love) will make you feel completed. She tells you what is right and what is not. You can share your thoughts and feelings with her and more. This will not only make you feel completed but also motivated she will remind you always that you are not alone.
+So, the internet is not our Enemy Make it your Ally. Use it wisely it will be more helpful to you even it will help you to get motivated. But remember to move out and have some interactions to others. Life will become easy when you will be at ease.
+
+Every smile, every face-to-face conversation, every genuine moment shared  can break the cycle of loneliness.”
